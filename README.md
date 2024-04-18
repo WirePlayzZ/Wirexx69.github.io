@@ -1,7 +1,7 @@
-# 🌟 anshxx99's Website! 🌟
+# 🌟 anshxx99's Chutyia Website! 🌟
 
-**🌑 Inspired by Darkxx:**
+**🌑 Inspired by Wirexx op:**
 
-> anshxx99's website is a brilliant fork of the renowned darkxx.xyz. 🌟
+> anshxx99's website is a brilliant fork of the renowned porn.hub. 🌟
 
-**🔗 Link:** [anshxx99's Website](https://anshxx.xyz/)
+**🔗 Link:** [anshxx99's Website](https://porn.hub/)
